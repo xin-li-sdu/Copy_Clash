@@ -1,5 +1,3 @@
-![bonus](https://github.com/xin-li-sdu/SDU-rewards/assets/40687850/43e45c4a-a078-4aa5-b945-7b468f258dd9)
-
 
 **这是已经跑路的clash的副本**
 
